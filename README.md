@@ -1,4 +1,4 @@
-### @realTangZhiqian / @Foru 57
+### real TangZhiqian / Foru 57
 
 “为你，千千万万遍”
 
